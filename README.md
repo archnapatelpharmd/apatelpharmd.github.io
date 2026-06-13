@@ -1,2 +1,2 @@
-# archnapatel.github.io
+# apatelpharmd.github.io
 All About Me
